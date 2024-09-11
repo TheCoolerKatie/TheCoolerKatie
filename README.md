@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hiya it's me, the OBJECTIVELY cooler Katie. Sorry, I don't make the rules, I just arbitrarily decide myself the winner.
 
 <!--
 **TheCoolerKatie/TheCoolerKatie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
